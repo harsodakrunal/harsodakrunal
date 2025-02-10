@@ -23,4 +23,4 @@
 
 ### 📬 Let's Connect!
 💼 **Upwork:** https://www.upwork.com/freelancers/~011bb5c882fcd2d100 <br>
-🐦 **LinkedIn:** https://www.linkedin.com/in/krunal-harsoda-773545125/
+📎 **LinkedIn:** https://www.linkedin.com/in/krunal-harsoda-773545125/
